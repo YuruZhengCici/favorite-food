@@ -1,1 +1,1 @@
-# favorite-food
+My favorite food is Peking Duck. The crispy roasted duck is very delicious.
